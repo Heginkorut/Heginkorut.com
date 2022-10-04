@@ -1,1 +1,0 @@
-# Heginkorut.com
